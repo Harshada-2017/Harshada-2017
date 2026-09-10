@@ -1,6 +1,3 @@
-Sure — removed **Software Developer** and kept the profile clean and professional.
-
- Minimal GitHub Profile README
 
 # Harshada Sudhan Jadhav 👩‍💻
 
